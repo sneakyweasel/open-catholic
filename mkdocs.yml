@@ -1,5 +1,5 @@
 site_name: Cathéchisme de l'Eglise Catholique
-locale: fr
+repo_url: https://github.com/sneakyweasel/open-catholic
 theme:
   name: material
   features:
@@ -11,6 +11,7 @@ theme:
     - search.highlight
     - content.tabs.link
     - content.footnote.tooltips
+    - annotations
   language: fr
   palette:
     - scheme: default
@@ -29,18 +30,16 @@ plugins:
   - search
 
 markdown_extensions:
+  - footnotes
   - toc:
       toc_depth: 4
-  - md_in_html
   - pymdownx.highlight:
       anchor_linenums: true
   - pymdownx.inlinehilite
   - pymdownx.snippets
   - admonition
-  - pymdownx.arithmatex:
-      generic: true
-  - footnotes
   - pymdownx.details
   - pymdownx.superfences
   - pymdownx.mark
   - attr_list
+  - md_in_html

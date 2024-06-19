@@ -92,11 +92,11 @@
 
 ##### IV. La célébration liturgique de l'Eucharistie
 
-##### V. Le sacrifice sacramentel : action de grâce, mémorial, présence
+##### V. Le sacrifice sacramentel: action de grâce, mémorial, présence
 
 ##### VI. Le banquet pascal
 
-##### VII. L'Eucharistie - "pignus futurae gloriae"
+##### VII. L'Eucharistie -"pignus futurae gloriae"
 
 ##### En bref
 
