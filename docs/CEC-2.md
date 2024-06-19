@@ -96,7 +96,7 @@
 
 ##### VI. Le banquet pascal
 
-##### VII. L'Eucharistie -"pignus futurae gloriae"
+##### VII. L'Eucharistie - "pignus futurae gloriae"
 
 ##### En bref
 

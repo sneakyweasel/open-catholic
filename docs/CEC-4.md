@@ -70,21 +70,21 @@
 
 #### I. Au centre des Écritures
 
-#### II."La prière du Seigneur"
+#### II. "La prière du Seigneur"
 
 #### III. La prière de l'Église
 
 ##### En bref
 
-### Article 2:"Notre Père qui es aux cieux"
+### Article 2: "Notre Père qui es aux cieux"
 
-#### I."Oser nous approcher en toute confiance"
+#### I. "Oser nous approcher en toute confiance"
 
-#### II."Père!"
+#### II. "Père!"
 
-#### III."Notre"Père
+#### III. "Notre"Père
 
-#### IV."Qui es aux cieux"
+#### IV. "Qui es aux cieux"
 
 ##### En bref
 

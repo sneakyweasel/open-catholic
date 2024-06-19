@@ -146,17 +146,17 @@
 
 ### En bref
 
-### Chapitre 1:"Tu aimeras le Seigneur ton Dieu de tout ton cœur, de toute ton âme et de tout ton esprit"
+### Chapitre 1: "Tu aimeras le Seigneur ton Dieu de tout ton cœur, de toute ton âme et de tout ton esprit"
 
 #### Article 1: Le premier commandement
 
-##### I."Tu adoreras le Seigneur, ton Dieu, et tu le serviras"
+##### I. "Tu adoreras le Seigneur, ton Dieu, et tu le serviras"
 
-##### II."C’est à lui seul que tu rendras un culte"
+##### II. "C’est à lui seul que tu rendras un culte"
 
-##### III."Tu n’auras pas d’autres dieux devant moi"
+##### III. "Tu n’auras pas d’autres dieux devant moi"
 
-##### IV."Tu ne te feras aucune image sculptée..."
+##### IV. "Tu ne te feras aucune image sculptée... "
 
 ##### En bref
 
@@ -178,7 +178,7 @@
 
 ##### En bref
 
-### Chapitre 2:"Tu aimeras ton prochain comme toi-même"
+### Chapitre 2: "Tu aimeras ton prochain comme toi-même"
 
 #### Article 4: Le quatrième commandement
 
@@ -206,7 +206,7 @@
 
 #### Article 6: Le sixième commandement
 
-##### I."Homme et femme, il les créa..."
+##### I. "Homme et femme, il les créa... "
 
 ##### II. La vocation à la chasteté
 
@@ -236,7 +236,7 @@
 
 ##### I. Vivre dans la vérité
 
-##### II."Rendre témoignage à la vérité"
+##### II. "Rendre témoignage à la vérité"
 
 ##### III. Les offenses à la vérité
 
@@ -264,6 +264,6 @@
 
 ##### III. La pauvreté de cœur
 
-##### IV."Je veux voir Dieu"
+##### IV. "Je veux voir Dieu"
 
 ##### En bref
