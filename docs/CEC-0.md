@@ -1,8 +1,5 @@
 # Prologue
 
-<!-- Cathechisme de l'Eglise catholique -->
-<!-- https://www.vatican.va/archive/FRA0013/_INDEX.HTM -->
-<!-- 18/06/2024 -->
 "Père, (...) la vie éternelle, c’est qu’ils Te connaissent, Toi, le seul véritable Dieu, et Ton envoyé, Jésus-Christ" [^1]. "Dieu notre Sauveur (...) veut que tous les hommes soient sauvés et parviennent à la connaissance de la vérité"[^2]. " Il n’y a sous le ciel d’autre nom donné aux hommes, par lequel il nous faille être sauvés"[^3] que le nom de JÉSUS.
 
 ## I. La vie de l’homme – connaître et aimer Dieu

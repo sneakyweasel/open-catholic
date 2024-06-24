@@ -8,6 +8,7 @@ L'objectif de ce projet est de rendre le Catéchisme de l'Église catholique plu
 
 ## Lien vers le document officiel
 
+Le texte original est disponible sur le site du Vatican et la version présentée date du 21/06/2024.
 [Site du Vatican - vatican.va](https://www.vatican.va/archive/FRA0013/_INDEX.HTM)
 
 ## Liste des sigles
