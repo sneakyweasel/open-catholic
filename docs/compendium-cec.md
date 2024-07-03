@@ -3834,7 +3834,7 @@ infiníte potens, fidélis, benígnus, et
 miséricors.
 In hac spe vívere et mori státuo.
 Amen.
-
+ 
 #### ACTUS CARITATIS
 
 Dómine Deus, amo te super ómnia et próximum
