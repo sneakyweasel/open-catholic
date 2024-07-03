@@ -1048,15 +1048,15 @@ Le cinquième commandement (" Les fidèles sont tenus par l’obligation de subv
 
 !!! danger "En bref"
 
-**2047** La vie morale est un culte spirituel. L’agir chrétien trouve sa nourriture dans la liturgie et la célébration des sacrements.
+    **2047** La vie morale est un culte spirituel. L’agir chrétien trouve sa nourriture dans la liturgie et la célébration des sacrements.
 
-**2048** Les commandements de l’Église concernent la vie morale et chrétienne unie à la liturgie et se nourrissant d’elle.
+    **2048** Les commandements de l’Église concernent la vie morale et chrétienne unie à la liturgie et se nourrissant d’elle.
 
-**2049** Le magistère des pasteurs de l’Église en matière morale s’exerce ordinairement dans la catéchèse et la prédication, sur la base du Décalogue qui énonce les principes de la vie morale valables pour tout homme.
+    **2049** Le magistère des pasteurs de l’Église en matière morale s’exerce ordinairement dans la catéchèse et la prédication, sur la base du Décalogue qui énonce les principes de la vie morale valables pour tout homme.
 
-**2050** Le pontife romain et les évêques, en docteurs authentiques, prêchent au peuple de Dieu la foi qui doit être crue et appliquée dans les mœurs. Il leur appartient aussi de se prononcer sur les questions morales qui sont du ressort de la loi naturelle et de la raison.
+    **2050** Le pontife romain et les évêques, en docteurs authentiques, prêchent au peuple de Dieu la foi qui doit être crue et appliquée dans les mœurs. Il leur appartient aussi de se prononcer sur les questions morales qui sont du ressort de la loi naturelle et de la raison.
 
-**2051** L’infaillibilité du magistère des pasteurs s’étend à tous les éléments de doctrine y compris morale sans lesquels les vérités salutaires de la foi ne peuvent être gardées, exposées ou observées.
+    **2051** L’infaillibilité du magistère des pasteurs s’étend à tous les éléments de doctrine y compris morale sans lesquels les vérités salutaires de la foi ne peuvent être gardées, exposées ou observées.
 
 ## Section 2: Les dix commandements
 

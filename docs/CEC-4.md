@@ -246,17 +246,17 @@ La prière " sacerdotale " de Jésus (cf. Jn 17) tient une place unique dans l�
 
 !!! danger "En bref"
 
-**2644** L’Esprit Saint qui enseigne l’Église et lui rappelle tout ce que Jésus a dit, l’éduque aussi à la vie de prière, en suscitant des expressions qui se renouvellent au sein de formes permanentes : bénédiction, demande, intercession, action de grâce et louange.
+    **2644** L’Esprit Saint qui enseigne l’Église et lui rappelle tout ce que Jésus a dit, l’éduque aussi à la vie de prière, en suscitant des expressions qui se renouvellent au sein de formes permanentes : bénédiction, demande, intercession, action de grâce et louange.
 
-**2645** C’est parce que Dieu le bénit que le cœur de l’homme peut bénir en retour Celui qui est la source de toute bénédiction.
+    **2645** C’est parce que Dieu le bénit que le cœur de l’homme peut bénir en retour Celui qui est la source de toute bénédiction.
 
-**2646** La prière de demande a pour objet le pardon, la recherche du Royaume ainsi que tout vrai besoin.
+    **2646** La prière de demande a pour objet le pardon, la recherche du Royaume ainsi que tout vrai besoin.
 
-**2647** La prière d’intercession consiste en une demande en faveur d’un autre. Elle ne connaît pas de frontière et s’étend jusqu’aux ennemis.
+    **2647** La prière d’intercession consiste en une demande en faveur d’un autre. Elle ne connaît pas de frontière et s’étend jusqu’aux ennemis.
 
-**2648** Toute joie et toute peine, tout événement et tout besoin peuvent être la matière de l’action de grâce qui, participant à celle du Christ, doit emplir toute la vie : " En toute condition, soyez dans l’action de grâce " (1 Th 5, 18).
+    **2648** Toute joie et toute peine, tout événement et tout besoin peuvent être la matière de l’action de grâce qui, participant à celle du Christ, doit emplir toute la vie : " En toute condition, soyez dans l’action de grâce " (1 Th 5, 18).
 
-**2649** La prière de louange, toute désintéressée, se porte vers Dieu ; elle le chante pour Lui, elle Lui rend gloire, au-delà de ce qu’il fait, parce qu’Il EST.
+    **2649** La prière de louange, toute désintéressée, se porte vers Dieu ; elle le chante pour Lui, elle Lui rend gloire, au-delà de ce qu’il fait, parce qu’Il EST.
 
 ### Chapitre 2: La tradition de la prière
 
@@ -296,9 +296,9 @@ La prière " sacerdotale " de Jésus (cf. Jn 17) tient une place unique dans l�
 
 !!! danger "En bref"
 
-**2661** C’est par une transmission vivante, la Tradition, que, dans l’Église, l’Esprit Saint apprend à prier aux enfants de Dieu.
+    **2661** C’est par une transmission vivante, la Tradition, que, dans l’Église, l’Esprit Saint apprend à prier aux enfants de Dieu.
 
-**2662** La Parole de Dieu, la liturgie de l’Église, les vertus de foi, d’espérance et de charité sont des sources de la prière.
+    **2662** La Parole de Dieu, la liturgie de l’Église, les vertus de foi, d’espérance et de charité sont des sources de la prière.
 
 #### Article 2: Le chemin de la prière
 
@@ -360,11 +360,11 @@ La prière " sacerdotale " de Jésus (cf. Jn 17) tient une place unique dans l�
 
 !!! danger "En bref"
 
-**2680** La prière est principalement adressée au Père ; de même, elle se porte vers Jésus, notamment par l’invocation de son saint Nom : " Jésus, Christ, Fils de Dieu, Seigneur, aie pitié de nous, pécheurs ! "
+    **2680** La prière est principalement adressée au Père ; de même, elle se porte vers Jésus, notamment par l’invocation de son saint Nom : " Jésus, Christ, Fils de Dieu, Seigneur, aie pitié de nous, pécheurs ! "
 
-**2681** " Nul ne peut dire : ‘Jésus est le Seigneur’, sinon sous l’action de l’Esprit Saint " (1 Co 12, 3). L’Église nous invite à invoquer le Saint Esprit comme le Maître intérieur de la prière chrétienne.
+    **2681** " Nul ne peut dire : ‘Jésus est le Seigneur’, sinon sous l’action de l’Esprit Saint " (1 Co 12, 3). L’Église nous invite à invoquer le Saint Esprit comme le Maître intérieur de la prière chrétienne.
 
-**2682** En vertu de sa coopération singulière à l’action de l’Esprit Saint, l’Église aime à prier en communion avec la Vierge Marie, pour magnifier avec elle les grandes choses que Dieu a réalisées en elle et pour lui confier supplications et louanges.
+    **2682** En vertu de sa coopération singulière à l’action de l’Esprit Saint, l’Église aime à prier en communion avec la Vierge Marie, pour magnifier avec elle les grandes choses que Dieu a réalisées en elle et pour lui confier supplications et louanges.
 
 #### Article 3: Des guides pour la prière
 
@@ -472,15 +472,15 @@ L’oraison cherche " celui que mon cœur aime " (Ct 1, 7 ; cf. Ct 3, 1-4). C’
 
 !!! danger "En bref"
 
-**2720** L’Église invite les fidèles à une prière régulière : prières quotidiennes, Liturgie des Heures, Eucharistie dominicale, fêtes de l’année liturgique.
+    **2720** L’Église invite les fidèles à une prière régulière : prières quotidiennes, Liturgie des Heures, Eucharistie dominicale, fêtes de l’année liturgique.
 
-**2721** La tradition chrétienne comprend trois expressions majeures de la vie de prière : la prière vocale, la méditation et l’oraison. Elles ont en commun le recueillement du cœur.
+    **2721** La tradition chrétienne comprend trois expressions majeures de la vie de prière : la prière vocale, la méditation et l’oraison. Elles ont en commun le recueillement du cœur.
 
-**2722** La prière vocale, fondée sur l’union du corps et de l’esprit dans la nature humaine, associe le corps à la prière intérieure du cœur, à l’exemple du Christ priant son Père et enseignant le " Notre Père " à ses disciples.
+    **2722** La prière vocale, fondée sur l’union du corps et de l’esprit dans la nature humaine, associe le corps à la prière intérieure du cœur, à l’exemple du Christ priant son Père et enseignant le " Notre Père " à ses disciples.
 
-**2723** La méditation est une recherche priante qui met en œuvre la pensée, l’imagination, l’émotion, le désir. Elle a pour but l’appropriation croyante du sujet considéré, confronté avec la réalité de notre vie.
+    **2723** La méditation est une recherche priante qui met en œuvre la pensée, l’imagination, l’émotion, le désir. Elle a pour but l’appropriation croyante du sujet considéré, confronté avec la réalité de notre vie.
 
-**2724** L’oraison mentale est l’expression simple du mystère de la prière. Elle est un regard de foi fixé sur Jésus, une écoute de la Parole de Dieu, un silencieux amour. Elle réalise l’union à la prière du Christ dans la mesure où elle nous fait participer à son Mystère.
+    **2724** L’oraison mentale est l’expression simple du mystère de la prière. Elle est un regard de foi fixé sur Jésus, une écoute de la Parole de Dieu, un silencieux amour. Elle réalise l’union à la prière du Christ dans la mesure où elle nous fait participer à son Mystère.
 
 #### Article 2: Le combat de la prière
 
@@ -725,17 +725,17 @@ Le désir et la volonté de lui ressembler. Créés à son image, c’est par gr
 
 !!! danger "En bref"
 
-**2797** La confiance simple et fidèle, l’assurance humble et joyeuse sont les dispositions qui conviennent à celui qui prie le " Notre Père ".
+    **2797** La confiance simple et fidèle, l’assurance humble et joyeuse sont les dispositions qui conviennent à celui qui prie le " Notre Père ".
 
-**2798** Nous pouvons invoquer Dieu comme " Père " parce que le Fils de Dieu fait homme nous l’a révélé, en qui, par le Baptême, nous sommes incorporés et adoptés en fils de Dieu.
+    **2798** Nous pouvons invoquer Dieu comme " Père " parce que le Fils de Dieu fait homme nous l’a révélé, en qui, par le Baptême, nous sommes incorporés et adoptés en fils de Dieu.
 
-**2799** La prière du Seigneur nous met en communion avec le Père et avec son Fils, Jésus Christ. Elle nous révèle en même temps à nous mêmes (cf. GS 22, § 1).
+    **2799** La prière du Seigneur nous met en communion avec le Père et avec son Fils, Jésus Christ. Elle nous révèle en même temps à nous mêmes (cf. GS 22, § 1).
 
-**2800** Prier notre Père doit développer en nous la volonté de lui ressembler, ainsi qu’un cœur humble et confiant
+    **2800** Prier notre Père doit développer en nous la volonté de lui ressembler, ainsi qu’un cœur humble et confiant
 
-**2801** En disant " Notre " Père, nous invoquons la nouvelle Alliance en Jésus Christ, la communion avec la Sainte Trinité et la charité divine qui s’étend par l’Église aux dimensions du monde.
+    **2801** En disant " Notre " Père, nous invoquons la nouvelle Alliance en Jésus Christ, la communion avec la Sainte Trinité et la charité divine qui s’étend par l’Église aux dimensions du monde.
 
-**2802** " Qui es aux cieux " ne désigne pas un lieu mais la majesté de Dieu et sa présence dans le cœur des justes.. Le ciel, la Maison du Père, constitue la vraie patrie où nous tendons et à laquelle, déjà, nous appartenons.
+    **2802** " Qui es aux cieux " ne désigne pas un lieu mais la majesté de Dieu et sa présence dans le cœur des justes.. Le ciel, la Maison du Père, constitue la vraie patrie où nous tendons et à laquelle, déjà, nous appartenons.
 
 ### Article 3: Les sept demandes
 
@@ -903,20 +903,20 @@ Le désir et la volonté de lui ressembler. Créés à son image, c’est par gr
 
 !!! danger "En bref"
 
-**2857** Dans le " Notre Père ", les trois premières demandes ont pour objet la Gloire du Père : la sanctification du Nom, l’avènement du Règne et l’accomplissement de la volonté divine. Les quatre autres lui présentent nos désirs : ces demandes concernent notre vie pour la nourrir ou pour la guérir du péché et elles se rapportent à notre combat pour la victoire du Bien sur le Mal.
+    **2857** Dans le " Notre Père ", les trois premières demandes ont pour objet la Gloire du Père : la sanctification du Nom, l’avènement du Règne et l’accomplissement de la volonté divine. Les quatre autres lui présentent nos désirs : ces demandes concernent notre vie pour la nourrir ou pour la guérir du péché et elles se rapportent à notre combat pour la victoire du Bien sur le Mal.
 
-**2858** En demandant : " Que ton Nom soit sanctifié " nous entrons dans le dessein de Dieu, la sanctification de son Nom – révélé à Moïse, puis en Jésus – par nous et en nous, de même qu’en toute nation et en chaque homme.
+    **2858** En demandant : " Que ton Nom soit sanctifié " nous entrons dans le dessein de Dieu, la sanctification de son Nom – révélé à Moïse, puis en Jésus – par nous et en nous, de même qu’en toute nation et en chaque homme.
 
-**2859** Par la deuxième demande, l’Église a principalement en vue le retour du Christ et la venue finale du Règne de Dieu. Elle prie aussi pour la croissance du Royaume de Dieu dans l’ " aujourd’hui " de nos vies.
+    **2859** Par la deuxième demande, l’Église a principalement en vue le retour du Christ et la venue finale du Règne de Dieu. Elle prie aussi pour la croissance du Royaume de Dieu dans l’ " aujourd’hui " de nos vies.
 
-**2860** Dans la troisième demande, nous prions notre Père d’unir notre volonté à celle de son Fils pour accomplir son Dessin de salut dans la vie du monde.
+    **2860** Dans la troisième demande, nous prions notre Père d’unir notre volonté à celle de son Fils pour accomplir son Dessin de salut dans la vie du monde.
 
-**2861** Dans la quatrième demande, en disant " Donne-nous ", nous exprimons, en communion avec nos frères, notre confiance filiale envers notre Père des cieux. " Notre pain " désigne la nourriture terrestre nécessaire à notre subsistance à tous et signifie aussi le Pain de Vie : Parole de Dieu et Corps du Christ. Il est reçu dans l’ " Aujourd’hui " de Dieu, comme la nourriture indispensable, (sur-)essentielle du Festin du Royaume qu’anticipe l’Eucharistie.
+    **2861** Dans la quatrième demande, en disant " Donne-nous ", nous exprimons, en communion avec nos frères, notre confiance filiale envers notre Père des cieux. " Notre pain " désigne la nourriture terrestre nécessaire à notre subsistance à tous et signifie aussi le Pain de Vie : Parole de Dieu et Corps du Christ. Il est reçu dans l’ " Aujourd’hui " de Dieu, comme la nourriture indispensable, (sur-)essentielle du Festin du Royaume qu’anticipe l’Eucharistie.
 
-**2862** La cinquième demande implore pour nos offenses la miséricorde de Dieu, laquelle ne peut pénétrer dans notre cœur que si nous avons su pardonner à nos ennemis, à l’exemple et avec l’aide du Christ.
+    **2862** La cinquième demande implore pour nos offenses la miséricorde de Dieu, laquelle ne peut pénétrer dans notre cœur que si nous avons su pardonner à nos ennemis, à l’exemple et avec l’aide du Christ.
 
-**2863** En disant " Ne nous soumets pas à la tentation " nous demandons à Dieu qu’il ne nous permette pas d’emprunter le chemin qui conduit au péché. Cette demande implore l’Esprit de discernement et de force ; elle sollicite la grâce de la vigilance et la persévérance finale.
+    **2863** En disant " Ne nous soumets pas à la tentation " nous demandons à Dieu qu’il ne nous permette pas d’emprunter le chemin qui conduit au péché. Cette demande implore l’Esprit de discernement et de force ; elle sollicite la grâce de la vigilance et la persévérance finale.
 
-**2864** Dans la dernière demande, " mais délivre nous du Mal ", le chrétien prie Dieu avec l’Église de manifester la victoire, déjà acquise par le Christ, sur le " Prince de ce monde ", sur Satan, l’ange qui s’oppose personnellement à Dieu et à Son dessein de salut.
+    **2864** Dans la dernière demande, " mais délivre nous du Mal ", le chrétien prie Dieu avec l’Église de manifester la victoire, déjà acquise par le Christ, sur le " Prince de ce monde ", sur Satan, l’ange qui s’oppose personnellement à Dieu et à Son dessein de salut.
 
-**2865** Par l’ " Amen " final nous exprimons notre " fiat " concernant les sept demandes : " Qu’il en soit ainsi ".
+    **2865** Par l’ " Amen " final nous exprimons notre " fiat " concernant les sept demandes : " Qu’il en soit ainsi ".

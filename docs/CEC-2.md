@@ -1076,33 +1076,33 @@ rien de plus vrai que cette parole de la Vérité.
 
 !!! danger "En bref"
 
-**1406** Jésus dit : " Je suis le pain vivant, descendu du ciel. Qui mangera ce pain vivra à jamais... Qui mange ma Chair et boit mon Sang a la vie éternelle ... il demeure en moi et moi en lui " (Jn 6, 51. 54. 56).
+    **1406** Jésus dit: " Je suis le pain vivant, descendu du ciel. Qui mangera ce pain vivra à jamais... Qui mange ma Chair et boit mon Sang a la vie éternelle ... il demeure en moi et moi en lui " (Jn 6, 51. 54. 56).
 
-**1407** L’eucharistie est le cœur et le sommet de la vie de l’Église car en elle le Christ associe son Église et tous ses membres à son sacrifice de louange et d’action de grâces offert une fois pour toutes sur la Croix à son Père ; par ce sacrifice il répand les grâces du salut sur son Corps, qui est l’Église.
+    **1407** L’eucharistie est le cœur et le sommet de la vie de l’Église car en elle le Christ associe son Église et tous ses membres à son sacrifice de louange et d’action de grâces offert une fois pour toutes sur la Croix à son Père ; par ce sacrifice il répand les grâces du salut sur son Corps, qui est l’Église.
 
-**1408** La célébration eucharistique comporte toujours : la proclamation de la Parole de Dieu, l’action de grâce à Dieu le Père pour tous ses bienfaits, surtout pour le don de son Fils, la consécration du pain et du vin et la participation au banquet liturgique par la réception du Corps et du Sang du Seigneur. Ces éléments constituent un seul et même acte de culte.
+    **1408** La célébration eucharistique comporte toujours : la proclamation de la Parole de Dieu, l’action de grâce à Dieu le Père pour tous ses bienfaits, surtout pour le don de son Fils, la consécration du pain et du vin et la participation au banquet liturgique par la réception du Corps et du Sang du Seigneur. Ces éléments constituent un seul et même acte de culte.
 
-**1409** L’Eucharistie est le mémorial de la Pâque du Christ : c’est-à-dire de l’œuvre du salut accomplie par la vie, la mort et la résurrection du Christ, œuvre rendue présente par l’action liturgique.
+    **1409** L’Eucharistie est le mémorial de la Pâque du Christ : c’est-à-dire de l’œuvre du salut accomplie par la vie, la mort et la résurrection du Christ, œuvre rendue présente par l’action liturgique.
 
-**1410** C’est le Christ lui-même, grand prêtre éternel de la nouvelle Alliance, qui, agissant par le ministère des prêtres, offre le sacrifice eucharistique. Et c’est encore le même Christ, réellement présent sous les espèces du pain et du vin, qui est l’offrande du sacrifice eucharistique.
+    **1410** C’est le Christ lui-même, grand prêtre éternel de la nouvelle Alliance, qui, agissant par le ministère des prêtres, offre le sacrifice eucharistique. Et c’est encore le même Christ, réellement présent sous les espèces du pain et du vin, qui est l’offrande du sacrifice eucharistique.
 
-**1411** Seuls les prêtres validement ordonnés peuvent présider l’Eucharistie et consacrer le pain et le vin pour qu’ils deviennent le Corps et le Sang du Seigneur.
+    **1411** Seuls les prêtres validement ordonnés peuvent présider l’Eucharistie et consacrer le pain et le vin pour qu’ils deviennent le Corps et le Sang du Seigneur.
 
-**1412** Les signes essentiels du sacrement eucharistique sont le pain de blé et le vin du vignoble, sur lesquels est invoquée la bénédiction de l’Esprit Saint et le prêtre prononce les paroles de la consécration dites par Jésus pendant la dernière cène : " Ceci est mon corps livré pour vous ... Ceci est la coupe de mon sang ... "
+    **1412** Les signes essentiels du sacrement eucharistique sont le pain de blé et le vin du vignoble, sur lesquels est invoquée la bénédiction de l’Esprit Saint et le prêtre prononce les paroles de la consécration dites par Jésus pendant la dernière cène : " Ceci est mon corps livré pour vous ... Ceci est la coupe de mon sang ... "
 
-**1413** Par la consécration s’opère la transsubstantiation du pain et du vin dans le Corps et le Sang du Christ. Sous les espèces consacrées du pain et du vin, le Christ lui-même, vivant et glorieux, est présent de manière vraie, réelle et substantielle, son Corps et son Sang, avec son âme et sa divinité (cf. Cc. Trente : DS 1640 ; 1651).
+    **1413** Par la consécration s’opère la transsubstantiation du pain et du vin dans le Corps et le Sang du Christ. Sous les espèces consacrées du pain et du vin, le Christ lui-même, vivant et glorieux, est présent de manière vraie, réelle et substantielle, son Corps et son Sang, avec son âme et sa divinité (cf. Cc. Trente : DS 1640 ; 1651).
 
-**1414** En tant que sacrifice, l’Eucharistie est aussi offerte en réparation des péchés des vivants et des défunts, et pour obtenir de Dieu des bienfaits spirituels ou temporels.
+    **1414** En tant que sacrifice, l’Eucharistie est aussi offerte en réparation des péchés des vivants et des défunts, et pour obtenir de Dieu des bienfaits spirituels ou temporels.
 
-**1415** Celui qui veut recevoir le Christ dans la Communion eucharistique doit se trouver en état de grâce. Si quelqu’un a conscience d’avoir péché mortellement, il ne doit pas accéder à l’Eucharistie sans avoir reçu préalablement l’absolution dans le sacrement de Pénitence.
+    **1415** Celui qui veut recevoir le Christ dans la Communion eucharistique doit se trouver en état de grâce. Si quelqu’un a conscience d’avoir péché mortellement, il ne doit pas accéder à l’Eucharistie sans avoir reçu préalablement l’absolution dans le sacrement de Pénitence.
 
-**1416** La sainte Communion au Corps et au Sang du Christ accroît l’union du communiant avec le Seigneur, lui remet les péchés véniels et le préserve des péchés graves. Puisque les liens de charité entre le communiant et le Christ sont renforcés, la réception de ce sacrement renforce l’unité de l’Église, Corps mystique du Christ.
+    **1416** La sainte Communion au Corps et au Sang du Christ accroît l’union du communiant avec le Seigneur, lui remet les péchés véniels et le préserve des péchés graves. Puisque les liens de charité entre le communiant et le Christ sont renforcés, la réception de ce sacrement renforce l’unité de l’Église, Corps mystique du Christ.
 
-**1417** L’Église recommande vivement aux fidèles de recevoir la sainte communion quand ils participent à la célébration de l’Eucharistie ; elle leur en fait obligation au moins une fois par an.
+    **1417** L’Église recommande vivement aux fidèles de recevoir la sainte communion quand ils participent à la célébration de l’Eucharistie ; elle leur en fait obligation au moins une fois par an.
 
-**1418** Puisque le Christ lui-même est présent dans le Sacrement de l’Autel, il faut l’honorer d’un culte d’adoration. " La visite au Très Saint Sacrement est une preuve de gratitude, un signe d’amour et un devoir d’adoration envers le Christ, notre Seigneur " (MF).
+    **1418** Puisque le Christ lui-même est présent dans le Sacrement de l’Autel, il faut l’honorer d’un culte d’adoration. " La visite au Très Saint Sacrement est une preuve de gratitude, un signe d’amour et un devoir d’adoration envers le Christ, notre Seigneur " (MF).
 
-**1419** Le Christ ayant passé de ce monde au Père, nous donne dans l’Eucharistie le gage de la gloire auprès de Lui : la participation au Saint Sacrifice nous identifie avec son Cœur, soutient nos forces au long du pèlerinage de cette vie, nous fait souhaiter la Vie éternelle et nous unit déjà à l’Église du Ciel, à la Sainte Vierge Marie et à tous les Saints.
+    **1419** Le Christ ayant passé de ce monde au Père, nous donne dans l’Eucharistie le gage de la gloire auprès de Lui : la participation au Saint Sacrifice nous identifie avec son Cœur, soutient nos forces au long du pèlerinage de cette vie, nous fait souhaiter la Vie éternelle et nous unit déjà à l’Église du Ciel, à la Sainte Vierge Marie et à tous les Saints.
 
 ### Chapitre 2: Les sacrements de guérison
 
@@ -1429,25 +1429,25 @@ Ces actions liturgiques indiquent quelle grâce ce sacrement confère aux malade
 
 !!! danger "En bref"
 
-**1526** " Quelqu’un parmi vous est-il malade ? Qu’il appelle les presbytres de l’Église et qu’ils prient sur lui, après l’avoir oint d’huile au nom du Seigneur. La prière de la foi sauvera le patient, et le Seigneur le relèvera. S’il a commis des péchés, ils lui seront remis " (Jc 5, 14-15).
+    **1526** " Quelqu’un parmi vous est-il malade ? Qu’il appelle les presbytres de l’Église et qu’ils prient sur lui, après l’avoir oint d’huile au nom du Seigneur. La prière de la foi sauvera le patient, et le Seigneur le relèvera. S’il a commis des péchés, ils lui seront remis " (Jc 5, 14-15).
 
-**1527** Le sacrement de l’Onction des malades a pour but de conférer une grâce spéciale au chrétien qui éprouve les difficultés inhérentes à l’état de maladie grave ou à la vieillesse.
+    **1527** Le sacrement de l’Onction des malades a pour but de conférer une grâce spéciale au chrétien qui éprouve les difficultés inhérentes à l’état de maladie grave ou à la vieillesse.
 
-**1528** Le temps opportun pour recevoir la Sainte Onction est certainement arrivé lorsque le fidèle commence à se trouver en danger de mort pour cause de maladie ou de vieillesse.
+    **1528** Le temps opportun pour recevoir la Sainte Onction est certainement arrivé lorsque le fidèle commence à se trouver en danger de mort pour cause de maladie ou de vieillesse.
 
-**1529** Chaque fois qu’un chrétien tombe gravement malade, il peut recevoir la Sainte Onction, de même lorsqu’après l’avoir reçue la maladie s’aggrave.
+    **1529** Chaque fois qu’un chrétien tombe gravement malade, il peut recevoir la Sainte Onction, de même lorsqu’après l’avoir reçue la maladie s’aggrave.
 
-**1530** Seuls les prêtres (presbytres et évêques) peuvent donner le sacrement de l’Onction des malades ; pour le conférer ils emploient de l’huile bénite par l’Evêque, ou, au besoin, par le presbytre célébrant lui-même.
+    **1530** Seuls les prêtres (presbytres et évêques) peuvent donner le sacrement de l’Onction des malades ; pour le conférer ils emploient de l’huile bénite par l’Evêque, ou, au besoin, par le presbytre célébrant lui-même.
 
-**1531** L’essentiel de la célébration de ce sacrement consiste en l’onction sur le front et les mains du malade (dans le rite romain) ou sur d’autres parties du corps (en Orient), onction accompagnée de la prière liturgique du prêtre célébrant qui demande la grâce spéciale de ce sacrement.
+    **1531** L’essentiel de la célébration de ce sacrement consiste en l’onction sur le front et les mains du malade (dans le rite romain) ou sur d’autres parties du corps (en Orient), onction accompagnée de la prière liturgique du prêtre célébrant qui demande la grâce spéciale de ce sacrement.
 
-**1532** La grâce spéciale du Sacrement de l’Onction des malades a comme effets :
+    **1532** La grâce spéciale du Sacrement de l’Onction des malades a comme effets :
 
-- l’union du malade à la Passion du Christ, pour son bien et pour celui de toute l’Église ;
-- le réconfort, la paix et le courage pour supporter chrétiennement les souffrances de la maladie ou de la vieillesse ;
-- le pardon des péchés si le malade n’a pas pu l’obtenir par le sacrement de la Pénitence ;
-- le rétablissement de la santé, si cela convient au salut spirituel ;
-- la préparation au passage à la vie éternelle.
+    - l’union du malade à la Passion du Christ, pour son bien et pour celui de toute l’Église ;
+    - le réconfort, la paix et le courage pour supporter chrétiennement les souffrances de la maladie ou de la vieillesse ;
+    - le pardon des péchés si le malade n’a pas pu l’obtenir par le sacrement de la Pénitence ;
+    - le rétablissement de la santé, si cela convient au salut spirituel ;
+    - la préparation au passage à la vie éternelle.
 
 ### Chapitre 3: Les sacrements du service de la communion
 
